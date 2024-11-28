@@ -1,0 +1,2 @@
+# TATA-Data-Visualization---Empowering-Business-with-Effective-Insights
+This hands-on program strengthened my skills in: 📊 Framing Business Scenarios to align data insights with strategic goals. 📈 Choosing the Right Visuals to effectively communicate complex data. 🎨 Creating Impactful Visuals that drive actionable decision-making. 🗣️ Communicating Insights and Analysis tailored to diverse audiences.
